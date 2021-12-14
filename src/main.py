@@ -7,3 +7,8 @@ n
 g
 d
 ndgbdg
+snvsln;dbmd
+dnbond
+dbmd
+dlbnldd
+dlbnl
