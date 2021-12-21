@@ -12,3 +12,7 @@ dnbond
 dbmd
 dlbnldd
 dlbnl
+kvk
+lgk
+kvkv
+llv
